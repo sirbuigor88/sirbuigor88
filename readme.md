@@ -1,1 +1,1 @@
-Motivated learner passionate about programming. Self-starter and problem solver eager for new challenges. Seeking a company and mentor to learn and contribute as a team player. Excited to make a positive impact and grow as a programmer.
+I am a passionate and driven individual who is interested in programming. Seeking a company and mentor to learn and contribute as a team player. Excited to make a positive impact and grow as a programmer.
